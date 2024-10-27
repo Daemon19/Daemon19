@@ -10,7 +10,7 @@ I'm currenly a high school student, so getting my ✨[favorite college](https://
 I'm currenly looking for help on how to start web development freelancing. So, if u have any advice, I would love to hear it on the issues section 😉
 
 ## Wanna reach me?
-Come to my instagram account [@mahatmadisini](https://www.instagram.com/mahatmadisini/) (and follow it 🤭) and text me.
+Come to my instagram account [@mahatmadisini](https://www.instagram.com/mahatmadisini/) (follow it 🤭) and text me.
 <!--
 **Daemon19/Daemon19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
